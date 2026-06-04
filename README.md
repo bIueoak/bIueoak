@@ -21,7 +21,7 @@ basic　dni　criteria,　IRL　gore　likers,　dsmp fans,　tcoaal,<br>
 	  <p align="center">INTERESTS — pokemon, BTS, horror games,<br>
 adventure time, fionna and cake, gravity falls, undertale <br>
 deltarune, ARGs, minecraft, persona 3 & 5, phasmophobia, mcsm,<br>
-sonic, steven universe !! <br><br>
+sonic, death note !! <br><br>
 	  <b><br><br>
      <p align="center">
   <img src="https://file.garden/Z5z-q-BHK0NiVvhU/68747470733a2f2f66696c652e67617264656e2f5a597244467a3032646750355a2d50792f556e7469746c656436375f32303233313232373138323532332e706e67.png"></p>
