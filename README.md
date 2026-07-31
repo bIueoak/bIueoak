@@ -17,7 +17,7 @@ i hide freely for those who ship illegal content or proshippers.<br><br>
     use slurs against races/disability/sexuality　(if you cant reclaim them)　&<br>
 basic　dni　criteria,　IRL　gore　likers,　dsmp fans,　tcoaal,<br>
     and similar game fans.<br>
-	  <p align="center">INTERESTS — pokemon, BTS, horror games,<br>
+	  <p align="center">INTERESTS — pokemon, pokepasta, fnf, horror games,<br>
 adventure time, fionna and cake, gravity falls, undertale <br>
 deltarune, ARGs, minecraft, persona 3 & 5, eddsworld, phasmophobia, mcsm,<br>
 sonic, death note, PGR, pokepasta, wwdits + ofmd !! <br><br>
