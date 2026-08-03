@@ -6,6 +6,7 @@ $\Large{\textsf{' my rival should be strong, to keep me sharp.
 
   <p align="center"><b>hey!! my name is sunny.</b><br>
     <i>feel free to int, cuddle, or hide.</i><br><br>
+	<i>note: i selfship w flowery !!</i><br><br>
 
  <p align="center">
   <img src="https://file.garden/Z5z-q-BHK0NiVvhU/68747470733a2f2f66696c652e67617264656e2f5a597244467a3032646750355a2d50792f556e7469746c656436345f32303233313232373136353831342e706e67.png"></p>
